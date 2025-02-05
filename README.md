@@ -7,10 +7,8 @@
 ### 📫 Let's connect!
 
 - Email: hafiz.amrullah@yahoo.com
-<!--
-- Blog: blog!
--->
 - Instagram: [@hafizamrullah_](https://instagram.com/hafizamrullah_)
 
 
 Let's collaborate and share ideas!
+
