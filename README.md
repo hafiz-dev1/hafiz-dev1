@@ -5,7 +5,9 @@ Greetings!👋
 📫 Let's connect!
 
 LinkedIn: linkedin.com/in/hafizamrullah
+
 Instagram: @hafizamrullah_
+
 Email: hafiz.amrullah@yahoo.com
 
 Always open to collaborations and discussions!
