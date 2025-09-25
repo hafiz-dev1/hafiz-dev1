@@ -10,8 +10,8 @@ An Informatics Student at Sumatera Institute of Technology
 
 ### 📫 Let's connect!
 
-- Email: hafiz.amrullah@yahoo.com
-- **Instagram:** <a href="https://instagram.com/hafizamrullah_" target="_blank" rel="noopener noreferrer">@hafizamrullah_</a> 
+- **Email**: hafiz.amrullah@yahoo.com
+- **Instagram:** <a href="https://instagram.com/hafizamrullah_">@hafizamrullah_</a> 
 
 Let's collaborate and share ideas!
 
